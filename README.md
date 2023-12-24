@@ -1,6 +1,6 @@
 Que onda Locos
 
-Soy solo un majeh whose trying hacking my own accounts
+Soy solo un maje whose trying hacking my own accounts
 
 Dont actually know any coding :/
 
